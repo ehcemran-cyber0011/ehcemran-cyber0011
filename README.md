@@ -1,49 +1,12 @@
-![](https://dl.kaskus.id/storage.googleapis.com/gweb-uniblog-publish-prod/original_images/Dino_non-birthday_version.gif)
- 
-<p align="center"> 
- 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
- <img src="https://profile-counter.glitch.me/EhcCYBER-99/count.svg" />
-</p>
- 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=HELLO+FRIENDS;HOW+ARE+YOU+,DID+YOU+FOLLOW+MY+GITHUB+.+.+.+?;FOLLOW+MY+GITHUB)](https://git.io/typing-svg)
-## 🚶 Visit Me
- 
-![20200808_160757](https://raw.githubusercontent.com/EhcCYBER-99/EhcCYBER-99/main/Screenshot_20210201-204155_Termux.jpg)
- 
-![20200808_160757](https://raw.githubusercontent.com/EhcCYBER-99/EhcCYBER-99/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
- 
-![github stats](https://github-readme-stats.vercel.app/api?username=EhcCYBER-99&show_icons=true&include_all_commits=true&theme=chartreuse-dark&cache_seconds=3200)
- 
-<img align="center" src="https://github-readme-stats.anuraghazra1.vercel.app/api/top-langs/?username=EhcCYBER-99&layout=compact&theme=chartreuse-dark" />
-<p align="center"> 
- 
-#Languages and Tools
-</p>
- 
-</p>
-<img align="center" src="https://github-readme-stats.anuraghazra1.vercel.app/api/pin/?username=EhcCYBER-99&repo=HACKPRO&theme=chartreuse-dark" />
-<p align="center">
-<a href="https://github.com/EhcCYBER-99/PROHACK"><img title="PROHACK" src="https://github-readme-stats.vercel.app/api/pin/?username=EhcCYBER-99&repo=PROHACK&theme=vision-friendly-dark"></a>
-<a href="https://github.com/EhcCYBER-99/Number"><img title="NUMBER" src="https://github-readme-stats.vercel.app/api/pin/?username=EhcCYBER-99&repo=Number&theme=vision-friendly-dark"></a>
-<a href="https://github.com/EhcCYBER-99/PROHACK-FILE"><img title="PROHACK-FILE" src="https://github-readme-stats.vercel.app/api/pin/?username=EhcCYBER-99&repo=PROHACK-FILE&theme=tokyonight"></a>
-</p>
- 
- 
- 
- 
- 
+![](https://dl.kaskus.id/storage.googleapis.com/gweb-uniblog-publish-prod/original_images/Dino_non-birthday_version.gif) 
 ![stats_banner](https://user-images.githubusercontent.com/78341798/194534778-d662496c-ae00-4e8d-ae9b-b90912054e7f.gif)
 <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
- 
 </h3>
- 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000¢er=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+EHC-EMRAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+EHC-EMRAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-_____________𝑵𝑨𝑴𝑬__𝑬𝑴𝑹𝑨𝑵_____
-________𝑭𝑹𝑶𝑴__𝑩𝑨𝑵𝑮𝑳𝑨𝑫𝑬𝑯_
-________𝑵𝑼𝑴𝑩𝑬𝑹 𝟗𝟕𝟏𝟎𝟓𝟔𝟗𝟓𝟒𝟗𝟖𝟓𝟕_
-________𝑰𝑴𝑶_𝟗𝟕𝟏𝟎𝟓𝟔𝟒𝟑𝟓𝟑𝟗𝟑𝟑_
-________𝑾𝑶𝑹𝑲__𝑷𝒀𝑻𝑯𝑶𝑵__
-________𝑬𝑯𝑪_𝑪𝒀𝑩𝑬𝑹_𝑯𝑨𝑪𝑲𝑰𝑵𝑮_
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000¢er=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+EHC-EMRAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+EHC-EMRAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
+➨➨𝙀𝙃𝘾 𝙀𝙈𝙍𝘼𝙉 𝘽𝘼𝙉𝙂𝙇𝘼𝘿𝙀𝙎𝙃 𝘾𝙔𝘽𝙀𝙍
+➨➨𝙄 𝙁𝙍𝙊𝙈 𝘽𝘼𝙉𝙂𝙇𝘼𝘿𝙀𝙎𝙃 
+➨➨𝙒𝙊𝙍𝙆 𝙊𝙁 𝙃𝘼𝘾𝙆𝙄𝙉𝙂 
+
 ![20200808_160757](https://raw.githubusercontent.com/EhcCYBER-99/EhcCYBER-99/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
 <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
  
