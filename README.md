@@ -1,6 +1,4 @@
-src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
-</h3>
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000¢er=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+EHC-EMRAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+EHC-EMRAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
+
 ➨➨𝙀𝙃𝘾 𝙀𝙈𝙍𝘼𝙉 𝘽𝘼𝙉𝙂𝙇𝘼𝘿𝙀𝙎𝙃 𝘾𝙔𝘽𝙀𝙍
 ➨➨𝙄 𝙁𝙍𝙊𝙈 𝘽𝘼𝙉𝙂𝙇𝘼𝘿𝙀𝙎𝙃 
 ➨➨𝙒𝙊𝙍𝙆 𝙊𝙁 𝙃𝘼𝘾𝙆𝙄𝙉𝙂 
